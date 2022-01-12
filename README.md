@@ -7,7 +7,7 @@
 
 - ⚡ Fun fact **, I like coffee without sugar and listening to soft music while I sleep :3**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: +526131282711</h3>
 <p align="left">
 </p>
 
